@@ -1,1 +1,1 @@
-# amalia-24set26-x7k
+# 24set26-x7k
